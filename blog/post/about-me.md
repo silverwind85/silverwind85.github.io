@@ -1,0 +1,1 @@
+Trochę o mnie 
